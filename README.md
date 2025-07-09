@@ -1,1 +1,1 @@
-# Sanica
+# Sanica, Bettyrose
